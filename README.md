@@ -5,7 +5,7 @@
 - 📫 How to reach me my dc: colouredpencils.
 - 😄 Pronouns:he/him duh
 - ⚡ Would be so happy that may scares you away, (sorry!) anything i say thats sound mean or rude that is totally satire, im being silly (or a bitch) with my words sometime, if youre uncomfortable with it then pls tell me so i could zip my mouth up.
-- 🍬 i will be semi-afk most of the time, so to be sure w2i ! c+h is always fine :P
+- 🍬 i will be semi-afk most of the time, so to be sure please w2i ! c+h is always fine :P
 
 <!---
 cerealkillerzz/cerealkillerzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
