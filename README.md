@@ -12,7 +12,9 @@
 - 📎 Currently working on my strawpage!;33
 
 
-![doki-doki-literature-club-stickers](https://github.com/user-attachments/assets/91d26d7a-25db-4594-a951-fdec2af89590) ![my-little-pony-mlp](https://github.com/user-attachments/assets/ac40fffe-9df2-4a4f-bc1d-194d459e8261) ![mlp-my-little-pony](https://github.com/user-attachments/assets/cc6bd89f-a6dd-41a8-ac10-362bacd7447a) ![my-little-pony-mlp (1)](https://github.com/user-attachments/assets/4cd2e962-3bef-4e4f-9bbc-9daca0543eeb) ![mlp-my-little-pony (1)](https://github.com/user-attachments/assets/328bb636-3feb-4ab8-8fd9-e9b15f600fbb)
+![doki-doki-literature-club-stickers](https://github.com/user-attachments/assets/91d26d7a-25db-4594-a951-fdec2af89590) ![my-little-pony-mlp](https://github.com/user-attachments/assets/ac40fffe-9df2-4a4f-bc1d-194d459e8261) ![mlp-my-little-pony](https://github.com/user-attachments/assets/cc6bd89f-a6dd-41a8-ac10-362bacd7447a) ![my-little-pony-mlp (1)](https://github.com/user-attachments/assets/4cd2e962-3bef-4e4f-9bbc-9daca0543eeb) ![mlp-my-little-pony (1)](https://github.com/user-attachments/assets/328bb636-3feb-4ab8-8fd9-e9b15f600fbb) ![mlp-my-little-pony (2)](https://github.com/user-attachments/assets/0861b0ed-1743-4a1a-b247-416afd0c054a) ![fluttershy-mlp](https://github.com/user-attachments/assets/9c10f3c2-afd8-4829-86e5-c8de5c8f5198)
+
+
 
 
 
