@@ -12,7 +12,8 @@
 - 📎 Currently working on my strawpage!;33
 
 
-![doki-doki-literature-club-stickers](https://github.com/user-attachments/assets/91d26d7a-25db-4594-a951-fdec2af89590)
+![doki-doki-literature-club-stickers](https://github.com/user-attachments/assets/91d26d7a-25db-4594-a951-fdec2af89590) ![my-little-pony-mlp](https://github.com/user-attachments/assets/ac40fffe-9df2-4a4f-bc1d-194d459e8261)
+
 
 cerealkillerzz/cerealkillerzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
