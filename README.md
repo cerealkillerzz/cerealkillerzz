@@ -7,6 +7,7 @@
 - ⚡ sometime i would act like a total dick or said or did smth that is so mean or bad then i apologies, its all joke i swearrr!!!
 - 🍬 i will be semi-afk most of the time, so to be sure please w2i ! c+h is always fine :P
 - 📎 Currently working on my strawpage!;33
+![200w](https://github.com/user-attachments/assets/1ba1c97f-4304-4060-b321-9b34e48c6fa1)
 
 <!---
 cerealkillerzz/cerealkillerzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
