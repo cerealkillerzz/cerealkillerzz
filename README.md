@@ -1,4 +1,4 @@
-![ddlc-titlescreen](https://github.com/user-attachments/assets/1b702d63-3f2d-401c-9ea8-01504fb5b0ac)
+![touhou-muse-dash](https://github.com/user-attachments/assets/8f0dda6c-dfbe-4540-accb-ceadb47b4780)
 
 
 - 👋 Hi, I’m lilith
