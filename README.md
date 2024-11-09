@@ -1,3 +1,6 @@
+![ddlc-titlescreen](https://github.com/user-attachments/assets/1b702d63-3f2d-401c-9ea8-01504fb5b0ac)
+
+
 - 👋 Hi, I’m lilith
 - 👀 I’m interested in southpark, hsr, genshin impact, wuwa, muse dash, pjsk, alien stage, co9,.. ALOTT !!
 - 🌱 I like tweek sm half of my skins are tweek. -.-
