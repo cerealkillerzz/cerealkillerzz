@@ -1,4 +1,5 @@
- ![madoka-madoka-magica](https://github.com/user-attachments/assets/0c20b961-341a-4f4f-be0c-78e89080ffc2) ![saki-happy](https://github.com/user-attachments/assets/66ae9899-f79a-410c-9fa7-afa7ddfd3966)
+ ![madoka-madoka-magica](https://github.com/user-attachments/assets/0c20b961-341a-4f4f-be0c-78e89080ffc2) ![saki-happy](https://github.com/user-attachments/assets/66ae9899-f79a-410c-9fa7-afa7ddfd3966) ![mizuki-walking](https://github.com/user-attachments/assets/d7ca02ce-e967-462e-abc0-5ab04c9a1c44)
+
 
 
 
