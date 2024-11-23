@@ -3,7 +3,7 @@
 
 - 👋 Hi, I’m lilith
 - 👀 I’m interested in southpark, hsr, genshin impact, wuwa, muse dash, pjsk, alien stage, co9,.. ALOTT !!
-- 🌱 I like tweek sm half of my skins are tweek. -.-
+- 🌱 my sp fav is tweek!!<3
 - 💞️ i may look like an asshole but im not i swear! pls int dont be shy im shy too TT
 - 📫 How to reach me my dc: hitmmeupp
 - 😄 Pronouns:they/them duh !!
