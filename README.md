@@ -4,7 +4,8 @@
 
 ⚜︎⚜︎⚜︎
 
-<iframe src="https://giphy.com/embed/KsLnm50rkhA6A" width="480" height="360" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/cat-confused-playing-KsLnm50rkhA6A">via GIPHY</a></p> 
+![image](https://github.com/user-attachments/assets/c3b3dfa9-0385-4a20-96da-9bedcf996230)
+
 
 
 
